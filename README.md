@@ -1,0 +1,1 @@
+# EjercicioClase6_Aplicada
